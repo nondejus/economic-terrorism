@@ -1,6 +1,0 @@
-# financial-terrorism
-
-alleen bij de vara!
-
-# media park
-https://en.wikipedia.org/wiki/Media_Park_(Hilversum)
